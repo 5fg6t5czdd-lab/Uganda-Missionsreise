@@ -1,4 +1,5 @@
 ---
+Uganda Missionsreisen
 ---
 # Unsere Vision
 Unsere Vision ist es, Menschen vollumfänglich Glauben, Hoffnung und Liebe zu schenken. Wir wollen Leben berühren, indem wir Gottes Liebe praktisch und geistlich weitergeben. Wir wollen Hoffnung bringen, wo Hoffnungslosigkeit ist, Ablehnung durch Annahme ersetzen, Freude statt Traurigkeit, Gemeinschaft statt Isolation, Licht statt Dunkelheit und den Frieden Gottes, den keiner sonst geben oder nehmen kann.
