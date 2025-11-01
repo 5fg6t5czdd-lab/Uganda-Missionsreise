@@ -160,7 +160,7 @@ Er stammt aus Uganda und ist unsere rechte Hand vor Ort. Nach seinem Studium im 
 
 Sie ist verheiratet, Mutter von 3 Kindern und wohnt in Deutschland. Marco, der vor 3 Jahren zur Familie kam, ist seither als 4tes Kind ein fester Teil in der Familie sowie im Team.
 
-Nicky ist Teil von Zeugniskultur und dient im Heilungs- und Befreiungsdienst. Ihr Mann Marc unterstützt die Arbeit im Hintergrund. Die Missionseinsätze in Uganda sind für sie ein Herzensanliegen. Sie erlebt immer wieder, wie Gott den Dienst segnet und Früchte sichtbar werden.
+Nicky dient im Heilungs- und Befreiungsdienst mit Church on the Road und Strahlen der Freude und ist Teil von Zeugniskultur. Ihr Mann Marc unterstützt die Arbeit im Hintergrund. Die Missionseinsätze in Uganda sind für sie ein Herzensanliegen. Sie erlebt immer wieder, wie Gott den Dienst segnet und Früchte sichtbar werden.
 
 ## Marco Jauss
 
