@@ -6,6 +6,11 @@ Unsere Vision ist es, Menschen vollumfänglich Glauben, Hoffnung und Liebe zu sc
 
 ---
 
+„Geht hinaus in die ganze Welt und verkündet das Evangelium der ganzen Schöpfung!“
+Markus 16,15
+
+---
+
 # Unsere Projekte
 
 ## 1. Familien mit behinderten Kindern im Mukono Distrikt
@@ -161,6 +166,11 @@ Nicky ist Teil von Zeugniskultur und dient im Heilungs- und Befreiungsdienst. Ih
 ## Marco Jauss
 
 Marco stammt ursprünglich aus Namibia, hat in Südafrika studiert und lebt seit ein paar Jahren als in Deutschland. Beruflich arbeitet er als Ingenieur, ist Mitgründer des Missionsdienstes in Uganda und ist ebenfalls im Heilungs- und Befreiungsdienst aktiv.
+
+---
+
+"Wer aber die Güter der Welt hat und seinen Bruder in Not sieht und sein Herz vor ihm verschließt, wie bleibt die Liebe Gottes in ihm? Kinder, lasst uns nicht mit Wort und Zunge lieben, sondern mit Tat und Wahrheit".
+1. Johannes 3,17-18
 
 ---
 
