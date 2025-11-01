@@ -20,7 +20,7 @@ Wir haben nun 9 Familien besucht, die wir in unser Programm aufgenommen und unte
 
 Da wir vor Ort noch nicht über ein eigenes Auto verfügen, müssen wir bei jedem Distriktbesuch eines mieten. Die momentanen finanziellen Möglichkeiten lassen es noch nicht zu, mehr Familien mit behinderten Kindern dazu zu nehmen. **Sobald sich regelmäßige Spender für diese 9 Kinder gefunden haben, werden wir den Kreis immer mehr erweitern.**
 
-[→ Zu den Familienprofilen](1.%20Familien%20mit%20behinderten%20Kindern%20im%20Mukono%20Distrikt.html)
+[→ Zu den Familienprofilen](1.%20Familien%20mit%20behinderten%20Kindern%20im%20Mukono%20Distrikt.md)
 
 ---
 
