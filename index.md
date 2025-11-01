@@ -7,6 +7,7 @@ Unsere Vision ist es, Menschen vollumfänglich Glauben, Hoffnung und Liebe zu sc
 ---
 
 „Geht hinaus in die ganze Welt und verkündet das Evangelium der ganzen Schöpfung!“
+
 Markus 16,15
 
 ---
